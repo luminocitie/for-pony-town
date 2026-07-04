@@ -20,8 +20,26 @@ i may not respond to you quickly/at all because i may be off tab or AFK
 i rarely go on pony town honestly unless im bored, most of the time ill be on roblox playing Something Evil Will Happen or random ass games
 my username [@luminocitie] is the same on all apps/sites but i will NOT follow/add you unless i know you, dont ask to be added/followed back
 
+
+
+
+
+
 some interests i like! because i MAY make skins for these
 
 phighting [current hyperfixation], alien/zombie stage, omori, reverse: 1999, project sekai, limbus company, 
 the owl house, team fortress 2, block tales, zato, parties are for losers, umamusume, WITCH HAT ATELIERRRR,
 frieren: beyond journeys end, honkai: star rail [i only like it for Sunday]
+
+
+
+
+
+
+
+also speaking of honkai: star rail, a couple of friends of mine have created a voice acting discord server for hsr! if you like hsr and you like to voice act, please join, we need more members! 
+first wave on july 7th!
+
+https://discord.gg/Dgma6kZkM
+
+ignore if not interested
