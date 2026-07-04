@@ -6,6 +6,8 @@ my pronouns are he/they and my name is Sunny!
 yes i am a guy i will not be stating my sexuality because i dont find it relevant in this case,
 neurodivergent + diagnosed but i wont specify
 
+im a minor but i wont specify my age, i dont care if youre an adult, just dont be weird towards me
+
 i specifically live in the tree on the pathway in the P! area, i will not move from there so please do not ask me to move, its my signature spot basically,
 if you don't have "see through objects" toggle turned on, you won't be able to see me,
 i will most likely be with friends 
