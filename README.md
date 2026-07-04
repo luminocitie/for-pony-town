@@ -11,6 +11,7 @@ if you don't have "see through objects" toggle turned on, you won't be able to s
 i will most likely be with friends 
 [i might move from the tree occasionally to collect presents + plushies]
 <img width="686" height="642" alt="image" src="https://github.com/user-attachments/assets/21f94db4-2194-4a6f-8d02-e80beeae5f83" />
+
 visual ref for the tree
 
 i do NOT interact with anyone except friends unless you talk to me first, i dont mind it but i do not prefer it,
