@@ -30,16 +30,3 @@ some interests i like! because i MAY make skins for these
 phighting [current hyperfixation], alien/zombie stage, omori, reverse: 1999, project sekai, limbus company, 
 the owl house, team fortress 2, block tales, zato, parties are for losers, umamusume, WITCH HAT ATELIERRRR,
 frieren: beyond journeys end, honkai: star rail [i only like it for Sunday]
-
-
-
-
-
-
-
-also speaking of honkai: star rail, a couple of friends of mine have created a voice acting discord server for hsr! if you like hsr and you like to voice act, please join, we need more members! 
-first wave on july 7th!
-
-https://discord.gg/Dgma6kZkM
-
-ignore if not interested
